@@ -8,4 +8,4 @@ The Student edition is for learning and teaching: one area, up to 50 loci or uni
 
 The illustrated tutorial and more information are on the website: **https://diggersoftware.site/**
 
-Contact: dumpsterfirestudio.art@gmail.com
+Contact: diggerexcavations@gmail.com
